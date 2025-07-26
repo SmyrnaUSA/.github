@@ -1,4 +1,4 @@
-# Welcome to https://github.com/SmyrnaUSA
+# Welcome
 
 Welcome to the GitHub home of the angel of the church in Smyrna. That's Smyrna, United State of Atlanta!
 
